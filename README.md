@@ -1,2 +1,2 @@
-# 2k12cr
-official website for 2K12CR
+# The World's Most Beautiful Man
+official website for The World's Most Beautiful Man
